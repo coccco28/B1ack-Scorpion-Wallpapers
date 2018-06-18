@@ -1,1 +1,0 @@
-# B1ack-Scorpion-Wallpapers
